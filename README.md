@@ -1,0 +1,1 @@
+# AI-Powered-Lecture-Notes-to-Study-Pack-Generator
